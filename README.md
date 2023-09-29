@@ -1,2 +1,2 @@
 # raghupatruni
-praveenkumar raghupatruniim from srikakulam
+praveenkumar raghupatruni im from srikakulam
